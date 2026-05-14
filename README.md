@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sameerahmed16
-- 🌱 I’m currently a junior at Penn State University majoring in Computer Science
+- 🌱 Graduated from Penn State University majoring in Computer Science
 - 💞️ I’m looking to learn from people and build new skills
 - 📫 You can reach me through email: sameerahmed00016@gmail.com, or my LinkedIn: https://www.linkedin.com/in/sameerahmed16
 
